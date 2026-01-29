@@ -1,0 +1,1 @@
+# Progetto-d-esame-Blazar-Periodocity
